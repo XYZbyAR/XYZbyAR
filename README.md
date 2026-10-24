@@ -2,5 +2,6 @@
 
 ✦ Visual designer at Postman  
 ✦ Making brand + product things  
-✦ **[xyzbyar.com](https://www.xyzbyar.com)**
+✦ Based in the San Francisco Bay Area  
+✦ **[xyzbyar.com](https://www.xyzbyar.com)** · [LinkedIn](https://www.linkedin.com/in/alicecrobertson/)
 
